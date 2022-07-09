@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ameer Hamza
+- 👀 I’m interested at creating Amzing designs
+- 🌱 I’m currently learning in Bs Physics
